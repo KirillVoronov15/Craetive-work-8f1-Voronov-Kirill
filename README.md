@@ -9,7 +9,7 @@
      * that guy who was turning cameras off will take this two friends and then drive them to Versal.
 7. Me will make tragedy and with conflict will go out of Louvre with the reaL picture and then I will come to Versal.
 8. There we are going to meet, sell picture and then together come to Nant.
-9. From Nant we are going to come to Mexico and chill there for the rest of the life.
+9. From Nant we are going to come to Mexico and chill there for the rest of the life. 😆
       | Name       | Age           | role     |
       | ------------- |:-------------:| -----:|
       | Kirill        | 14 | Auctioner        |
